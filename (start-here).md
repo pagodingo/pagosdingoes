@@ -3,7 +3,7 @@
 <img src="./pago.png">
 
 > 
-Pago Dingo is a pseudonym (pen name) inspired by the idea of a ficticious farmer who herds dingoes (while also being a dog himself). These blog entries are like said dingoes. They each have meanings and personalities of their own, but are only about as well-put together as dog's thoughts could be.
+Pago Dingo is a pseudonym (pen name) inspired by the idea of a ficticious farmer who herds dingoes (while also being a dog himself). These blog entries are like said dingoes. They each have meanings and personalities of their own, but are only about as well-put together as dog's thoughts.
 
 The spelling of the name, as well as its phonetic pronunciation, also makes it pretty fun to say.
 
