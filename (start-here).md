@@ -9,6 +9,6 @@ The spelling of the name, as well as its phonetic pronunciation, also makes it p
 
 In Spanish, pago means payment. And a dingo is a form of dog. Therefore, you could also argue that Pago Dingo is spanish for Dog The Bounty Hunter.
 
-I have over 100k characters of text in just my apple notes alone. Thousands of dingoes adopted over the past ~10 years. And across all of the other apps I use to write, there could easily be three times that in total. 
+I have over 100k characters of text in just my apple notes alone. Thousands of dingoes adopted over the past ~10 years. And across all of the other apps I use to write, there could  very easily be three times that. 
 
-I'm starting this blog to officially open the dingo farm for business, and let these notes roam freely across the internet, as all dogs should. 🐾
+I'm starting this blog to officially open the dingo farm for business, and let these notes roam freely across the internet, as all dogs should be able to. 🐾
